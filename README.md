@@ -1,2 +1,2 @@
-# RocketLegend.xyz
+# rocketlegend.xyz
 ???
